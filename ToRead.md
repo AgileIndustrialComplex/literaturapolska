@@ -35,3 +35,8 @@
 9. Tadeusz Różewicz  
     - Poemat otwarty (1956)  
     - Formy (1958)
+
+10. Adolf Rudnicki
+
+## References
+1. https://www.britannica.com/art/Polish-literature
